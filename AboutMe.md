@@ -4,3 +4,4 @@
 If You Get Banned, It is none of my concern. USE THESE HACKS WISELY.
 Enjoy!
 Contact Me: volatilechroma@gmail.com
+My Blooket Page: https://dashboard.blooket.com/stats?name=DivineBlook
